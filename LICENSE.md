@@ -1,4 +1,4 @@
-# 
+# مفتوح المصدر Avast Premium Security امتدادات لـ Mac OS | نهائي Avast Premium Security امتدادات لـ PC Windows. مع تشفير من مستوى عسكري و النفق المنفصل — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
